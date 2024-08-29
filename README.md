@@ -1,4 +1,6 @@
-// Hi f*ckers I'm Luuna, and I like abusing my power of making mods to create weapons of mass destruction
+## Hi f*ckers I'm Luuna
+
+//I like abusing my power of making mods to create weapons of mass destruction
 
 // I'm learning java rn, cuz, you know, minecraft
 

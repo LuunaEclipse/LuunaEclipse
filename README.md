@@ -1,9 +1,9 @@
-# Likes:
+Likes:
 // Splatoon 🦑
 // Kasane Teto 🎤
 // Being gay 🏳️‍🌈
 // Not using windows 💻
-# Dislikes:
+Dislikes:
 // Javascript ❌
 // Ink brush players 🤢
 // Homophobia 🤮

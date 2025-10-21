@@ -1,13 +1,13 @@
-𝐿𝒾𝓀𝑒𝓈:
-⋆｡°✩ vocaloid 🎤
-₊˚⊹ being gay 🏳️‍🌈
-⋆˙⟡ making music 🎵
-✮⋆˙ nintendo (not the company) 🕹️
-₊˚⊹ the 50 references to Kris using they/them on the deltarune wiki 🔊
-𝒟𝒾𝓈𝒾𝓀𝑒𝓈:
-₊˚⊹ mizuki trans-deniers 🚫
-✮⋆˙ heavy metal 🎸
-⋆｡°✩ nintendo (the company) 💰
+𝐿𝒾𝓀𝑒𝓈: <br />
+⋆｡°✩ vocaloid 🎤 <br />
+₊˚⊹ being gay 🏳️‍🌈<br />
+⋆˙⟡ making music 🎵<br />
+✮⋆˙ nintendo (not the company) 🕹️<br />
+₊˚⊹ the 50 references to Kris using they/them on the deltarune wiki 🔊<br />
+𝒟𝒾𝓈𝒾𝓀𝑒𝓈:<br />
+₊˚⊹ mizuki trans-deniers 🚫<br />
+✮⋆˙ heavy metal 🎸<br />
+⋆｡°✩ nintendo (the company) 💰<br />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣤⣀⣀⠀⠀⣀⡠⠴⠒⠚⠉⠉⠓⠒⠦⣄⣶⠒⣷⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠘⡷⢬⣉⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠠⡌⠻⣧⢻⣧⣤⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀

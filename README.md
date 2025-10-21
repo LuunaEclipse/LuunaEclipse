@@ -13,5 +13,5 @@
 ₊˚⊹ mizuki trans-deniers 🚫<br />
 ✮⋆˙ heavy metal 🎸<br />
 ⋆｡°✩ nintendo (the company) 💰<br />
-
-
+<br />
+[<img width="300" src="https://github.com/user-attachments/assets/c74c5c2c-ac04-4bc6-8e72-f6e2e2e6d4ce"/>](https://music.youtube.com/playlist?list=PLqQLL30fMAiId1IMxZsPEwNhd_16CFP79&si=2hsC9bhCODKi5nxD)

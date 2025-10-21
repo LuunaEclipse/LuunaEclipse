@@ -1,5 +1,5 @@
 <h1 align=center> ⋆˚꩜ Hiya! Welcome to my profile ꩜˚⋆ </h2>
-<p align=center> If you're my mentees, I guess you can learn more about the person yapping about your code, and if not... Why are you even looking at my profile?? </p>
+<p align=center> If you're one of my mentees, I guess you can learn more about the person yapping about your code, and if not... Why are you even looking at my profile?? </p>
 
 <a><img width="430" align=right src=https://i.imgur.com/tV1Zz7O.jpeg></a>
 ### **𝐿𝒾𝓀𝑒𝓈**: <br />
